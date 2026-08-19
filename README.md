@@ -1,1 +1,1 @@
-Hi. I make stuff you'll probably never use.
+Hi. I make things for my own use.
