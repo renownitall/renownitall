@@ -1,1 +1,1 @@
-Hi. I make things for my own use.
+Hi. I like making things for my own use.
